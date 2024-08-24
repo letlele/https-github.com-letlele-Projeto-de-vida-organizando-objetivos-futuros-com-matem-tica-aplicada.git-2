@@ -1,0 +1,1 @@
+# https-github.com-letlele-Projeto-de-vida-organizando-objetivos-futuros-com-matem-tica-aplicada.git-2
